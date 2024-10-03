@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @PanicTanny
+- 👀 I’m interested in Java Developments
+- 🌱 I’m currently learning Spring
+- 💞️ I’m looking to collaborate on Some App Development Model
+- 📫 How to reach me ( idk not sure )
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'll let you know later
